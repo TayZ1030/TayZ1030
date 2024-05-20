@@ -14,5 +14,4 @@ Você pode entrar em contato comigo 📫
 
 @TayZ1030
 
-![](https://tenor.com/pt-BR/view/dog-smile-shyboos-smile-gif-6799543775821848754)
-
+![](https://media1.tenor.com/m/QxIQlHSv7h8AAAAC/dog-smiling.gif)
